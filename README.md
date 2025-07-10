@@ -1,4 +1,4 @@
-## 👨‍💻 Sobre mí
+## 👋 ¡Hola! Soy Johan Esneyder Serna
 
 Soy una persona responsable, puntual, creativa y con muy buena disposición para cualquier tarea que se me asigne.  
 Tengo **5 años de experiencia** laboral en el área de TI. Me interesa principalmente trabajar en **proyectos con un nivel de innovación alto y enfoque social**.  
