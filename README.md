@@ -6,6 +6,7 @@ Soy comunicativo, amable y capaz de adaptarme a cada situación.
 En mis empleos anteriores me he destacado por mi **productividad** y por **aprender rápidamente**.
 
 ---
+## 👨‍💻 Sobre mí
 
 ## 🤖 Consultor de tecnología
 
